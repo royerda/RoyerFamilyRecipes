@@ -34,3 +34,9 @@ Onion and peppers should be diced.  All peppers should be cleaned/seeded (in oth
 4. Add the Hidden Valley Ranch Dressing Mix to the crock pot.  It’s easiest to just do this one pack at a time (pour out pack, stir into chili, repeat).
 5. Let the chili cook for around 4 hours, or until the smell has become so overwhelmingly awesome in your home that you just can't stand it anymore.
 6. This goes really well with some freshly shredded Monterey Jack cheese on top and some cornbread on the side.
+
+## Notes
+  * The chili turns out especially awesome if you cook it all a day in advance in a pot on the stovetop, chill it in the fridge overnight, then reheat either on the stove or in a crock pot for the chili eating occasion. The overnight mingling of all that good stuff makes it all the better :)
+  * As it may be obvious, there’s a lot of things in the recipe left to personal preference.  I don’t think I’ve ever made it exactly the same each time, but the general idea is beef, beans, chili peppers, and the ranch dressing mix.  So experiment to your heart’s content.
+  * I used to use all fresh produce, but it always ended up taking around 1-1.5 hours to get everything in the crock pot (there was a ridiculous amount of dicing to do!). I have since gone to the canned green chilies and canned tomatoes, and the prep time has dropped significantly.
+  * Most of the time I will do steps 2 and 3 at the same time.
