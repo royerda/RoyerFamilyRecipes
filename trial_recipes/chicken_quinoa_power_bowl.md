@@ -26,7 +26,9 @@
 
 ## Directions
 1. Grill chicken
+
    a. I did sea salt, fresh cracked pepper, and garlic powder on chicken thighs, then cook either on grill or cast iron skillet
+
 2. Heat a medium saucepan over high heat, add the chicken broth and the quinoa. Bring to a boil, then reduce heat to low. Cover and cook for 13-15 minutes until quinoa is cooked.
 3. Remove the quinoa from the heat and let stand for 5 minutes. Uncover and fluff with a fork.
 4. Stir the lemon, garlic powder, paprika, onion powder, salt, and pepper into the cooked quinoa then set aside.
