@@ -25,16 +25,16 @@
   * 12 Tablespoons Pesto
 
 ## Directions
-1. Grill chicken
+**1.** Grill chicken
 
    a. I did sea salt, fresh cracked pepper, and garlic powder on chicken thighs, then cook either on grill or cast iron skillet
 
-2. Heat a medium saucepan over high heat, add the chicken broth and the quinoa. Bring to a boil, then reduce heat to low. Cover and cook for 13-15 minutes until quinoa is cooked.
-3. Remove the quinoa from the heat and let stand for 5 minutes. Uncover and fluff with a fork.
-4. Stir the lemon, garlic powder, paprika, onion powder, salt, and pepper into the cooked quinoa then set aside.
-5. Heat a large pot over medium-low and add the oil and carrots. Cook until the carrots begin to get soft.
-6. Add the kale and cook until wilted. Season with additional salt and pepper to taste if desired.
-7. Reduce heat to low and add the tomatoes, cooked quinoa, and pesto. Cook for an additional 3-5 minutes.
+**2.** Heat a medium saucepan over high heat, add the chicken broth and the quinoa. Bring to a boil, then reduce heat to low. Cover and cook for 13-15 minutes until quinoa is cooked.
+**3.** Remove the quinoa from the heat and let stand for 5 minutes. Uncover and fluff with a fork.
+**4.** Stir the lemon, garlic powder, paprika, onion powder, salt, and pepper into the cooked quinoa then set aside.
+**5.** Heat a large pot over medium-low and add the oil and carrots. Cook until the carrots begin to get soft.
+**6.** Add the kale and cook until wilted. Season with additional salt and pepper to taste if desired.
+**7.** Reduce heat to low and add the tomatoes, cooked quinoa, and pesto. Cook for an additional 3-5 minutes.
 
 Serve hot with chicken sliced on top.
 
