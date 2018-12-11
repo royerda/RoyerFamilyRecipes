@@ -10,7 +10,8 @@
   * 2 bell peppers
     * Again, your preference here, I normally throw in at least one red, but you can do 2 green, 2 red, a mix of the two, or get colorful and throw in a yellow or orange bell pepper.
   * 1 large can of fire roasted green chilies.
-  * 1 large can of diced tomatoes
+    * Basically 7-8 ounces will do, so 2 of the small cans will also work.
+  * 1 large (28 oz.) can of diced tomatoes
   * 4 packs of Chili mix
     * Your preference on brand, this is just easier half the time.  I've also been known to make my own mix of chilipowder, cumin, cayenne, and so forth.)
   * 3 packs of (dry) Hidden Valley Ranch Dressing Mix
