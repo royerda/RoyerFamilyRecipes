@@ -1,6 +1,3 @@
-This chili recipe originated from a vegetarian chili that was made by Mo (Lawrence Royers' neighbor).
-
-
 # Modified Vegetarian Chili Recipe
 
 ## Ingredients
@@ -23,7 +20,9 @@ This chili recipe originated from a vegetarian chili that was made by Mo (Lawren
 
 
 ## Directions
-1. 
+1. Preheat broiler.
+2. Cut bell peppers in half length-wise. Remove and discard seeds and membranes. Place pepper halves, skin sides up, on a foil-lined baking sheet. Broil 15 minutes or until blackened (fist attempt took more like 20 minutes). Place pepper halves in a zip-top plastic bag; seal. Let stand 15 minutes. Peel and chop peppers.
+3. 
 
 ## Notes
   * This chili recipe originated from a vegetarian chili that was made by Mo (Lawrence Royers' neighbor). The truly *original* recipe apparently turns out a bit too soupy, so I started from an already modified version with some notes from Maureen, then I added stew meat because I wanted some **meat** :).
